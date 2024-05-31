@@ -1,2 +1,2 @@
-# Saran-kebijakan-baru
-Saran kebijakan yang berasal dari pemikiran rakyat,khusus orang indonesia
+# Saran-kebijakan-baru (indonesia)
+hanya berisi ide ide saran kebijakan yang berasal dari pemikiran rakyat.
